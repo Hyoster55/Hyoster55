@@ -1,4 +1,4 @@
-##  Moment converge and then it will be eternity.
+##  Moment converge, and then it will be 'Eternity'.
 
 
 
